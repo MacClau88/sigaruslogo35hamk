@@ -1,1 +1,0 @@
-# sigaruslogo35hamk
